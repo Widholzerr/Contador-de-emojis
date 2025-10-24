@@ -87,6 +87,10 @@ Pedro: 💩💩
 
 Gabi: 💩 (emergencial)
 
+23/09:
+
+Pedro: 💩 (leve)
+Gabi: 💩💩 
 
 ---
 
